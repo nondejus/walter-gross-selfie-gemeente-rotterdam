@@ -1,1 +1,0 @@
-# walter-gross-selfie-gemeente-rotterdam
